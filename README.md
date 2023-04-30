@@ -89,6 +89,28 @@ Discordで入ってすぐ宣伝できるサーバーのリストです。
 注意点:  
 なし  
   
+[🕍ホグワーツ魔法魔術学校](https://discord.gg/Vq7m7KCWtw)  
+人数: 383人  
+宣伝チャンネル:  
+#┣🦉｜フクロウ便  
+注意点:  
+なし  
+  
+[kurumi server](https://discord.gg/vbTTUZ9gMq)  
+人数: 306人  
+宣伝チャンネル:  
+#📣宣伝  
+#📣宣伝2  
+注意点:  
+なし  
+  
+[🕊‎しんしん平和国🕊‎](https://discord.gg/xFsf789qXN)  
+人数: 174人  
+宣伝チャンネル:  
+#🔀：宣伝していいとこ  
+注意点:  
+なし  
+  
 [📣超宣伝鯖](https://discord.gg/G3dFDVRZx5)  
 人数: 133人  
 宣伝チャンネル:  
